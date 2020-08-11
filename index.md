@@ -1,3 +1,3 @@
 sanchoksc
 
-Associate SOftware Engineer
+Associate Software Engineer
